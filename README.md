@@ -1,2 +1,1 @@
-# peedy.world
-BonziWORLD Remake
+NO FUCKING KIDDIES IN HERE OKAY?
